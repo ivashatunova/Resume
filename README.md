@@ -1,6 +1,6 @@
 # Шатунова Иванна Валерьевна
 
-![photo](https://www.evernote.com/l/AWC93HysB9NEPa8i0OviGfMVTcs53tfk5Hg)
+![photo](https://www.evernote.com/shard/s352/sh/bddc7cac-07d3-443d-af22-d0ebe219f315/4dcb39ded7e4e478/res/622d01de-a250-40ca-966c-247b2dec8043)
 
 Женщина, 33 года, родилась 28 декабря 1989
 ## Контакты
